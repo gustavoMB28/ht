@@ -1,4 +1,4 @@
-# sobre mimca🫀
+# sobre mim🫀
 ## editando perfil
 ### teste
 ola, eu sou @gustavo
